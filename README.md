@@ -9,4 +9,4 @@
 - Instagram : @fitrytrisnaa_
 - Facebook  : FitriTrisnawati
 - ⚡ Fun fact: I like dora 💞️
-- My Hobby is Traveling and Watch DRAKOR 👀
+- My Hobby is Traveling, Exercise and Watch DRAKOR 👀
