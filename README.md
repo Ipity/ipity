@@ -1,6 +1,6 @@
-# Hello World! 👋💞️
+# Hi there👋 , i'm ipit!
 
-- 👋 Yeoboseyo, I’m Fitri Trisnawati!
+- 👋 Assalamu'alaikum, I’m Fitri Trisnawati!👩‍🏫
 - 👋 I’m a mentee on IBM Advance AI at Infinite Learning
 - 👀 I’m interested in AI, and Machine Learning 
 - 🌱 I’m currently learning Python, Next Java Script
@@ -8,5 +8,5 @@
 - 📫 How to reach me?..
 - Instagram : @fitrytrisnaa_
 - Facebook  : FitriTrisnawati
-- ⚡ Fun fact: I like dora 💞️
-- My Hobby is Traveling, Exercise and Watch DRAKOR 👀
+- ⚡ Fun fact: I like dddoraaa👩🏻 and u😂💞️
+- My Hobby is Traveling✈, sport🏸 and collect things😋
