@@ -9,5 +9,6 @@
 - Instagram : @fitrytrisnaa_
 - Facebook  : FitriTrisnawati
 - My Linkedin : https://www.linkedin.com/in/fitritrisnaa/
+- My_Sertification : https://www.credly.com/users/fitri-trisnawati.2c7b07c5/badges & https://www.credly.com/users/fitri-trisnawati/badges
 - ⚡ Fun fact: I like dddoraaa👩🏻 and u😂💞️
 - My Hobby is Traveling✈, sport🏸 and collect things😋
