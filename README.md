@@ -8,5 +8,6 @@
 - 📫 How to reach me?..
 - Instagram : @fitrytrisnaa_
 - Facebook  : FitriTrisnawati
+- My Linkedin : https://www.linkedin.com/in/fitritrisnaa/
 - ⚡ Fun fact: I like dddoraaa👩🏻 and u😂💞️
 - My Hobby is Traveling✈, sport🏸 and collect things😋
